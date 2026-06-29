@@ -1,4 +1,4 @@
-
+Enhance your Golden Frog VyprVPN experience with smart Golden Frog VyprVPN Service | DNS-leak-protection + obfuscation, the #1 service. Includes DNS-leak-protection and
 
 
 
